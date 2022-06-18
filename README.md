@@ -10,4 +10,4 @@ A partir daí, é feita a proposta:
 
 Não se preocupe! É impossível dizer não ;)
 
-Link da page: https://lari-98.github.io/pedido-de-namoro.github.io/
+Link da page: https://lari-98.github.io/viagem-espacial.github.io
